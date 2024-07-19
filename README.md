@@ -1,0 +1,60 @@
+# Portugues
+
+## Dinheiro e Vida: Uma Jornada Pessoal
+
+Desde minha infância em uma família de classe média baixa em uma grande cidade latino-americana, até meus 42 anos, a jornada financeira sempre foi uma mistura de pequenas vitórias e grandes desafios. Aos 12 anos, comecei a trabalhar, e desde então, minha vida tem sido uma luta constante contra boletos e dívidas, enquanto simultaneamente alcançava conquistas como a graduação universitária, a compra de carros usados e a aquisição de um pequeno apartamento.
+
+Por muito tempo, eu me senti insatisfeito, sempre comparando minha trajetória com a de amigos e as versões idealizadas que as redes sociais apresentam. As constantes cobranças sociais sobre poupança e planejamento de aposentadoria só aumentavam minha angústia. Questionava-me: "Será que algum dia alcançarei meus sonhos, como a casa ideal ou as viagens que tanto desejo?"
+
+Tudo começou a mudar em 2020, quando a pandemia global nos forçou a repensar nossas vidas. Com mais tempo livre, mergulhei no mundo das finanças pessoais. Descobri, através de recursos gratuitos no YouTube e em blogs, três pilares fundamentais: **Ganhar, Gastar e Investir**. Esses conceitos, embora simples, reorganizaram minha percepção sobre o dinheiro.
+
+Hoje, mantenho uma relação saudável com as finanças. Aprendi a planejar para o presente e para o futuro sem a pressão de acumular riquezas imediatamente. Este alívio transformou não só minha saúde financeira, mas também minha qualidade de vida.
+
+### O que a vida me ensinou:
+
+* A vida nos ensina a ir para a escola, para a universidade, comprar uma casa, casar e ter filhos.
+* A trabalhar a vida toda, colocando dinheiro em plano de previdência e em uma boa carreira.
+* A passar 70% da infância na escola, aprendendo como ser um trabalhador.
+* A ser nivelado por inteligência acadêmica — quanto mais diplomas, melhor.
+* Com a esperança de que não morra antes de poder realmente desfrutar dos frutos do trabalho.
+* Que provas são as coisas mais importantes da vida.
+* A reclamar sem propor soluções.
+* A saber dos meus direitos, mas nunca dos meus deveres.
+* Que o status social é muito importante.
+
+### O que a vida não me ensinou (mas eu aprendi):
+
+* Como lidar com sentimentos, meus e dos outros.
+* Como gerenciar finanças pessoais.
+* Como pagar meus impostos e como evitá-los.
+* Como ser uma pessoa realmente boa e ser capaz de manter uma conversa.
+* Como construir relacionamentos e ter experiências.
+
+### Lições valiosas:
+
+* Ter conhecimento prático que gere resultado, ao invés de acumular diplomas.
+* Se decidir não empreender, ser o melhor trabalhador e trabalhar onde te valorizem.
+* Desfrutar da vida durante a vida e não no final dela.
+* É impossível viver sem dinheiro.
+* Nem sempre precisamos de todo dinheiro que imaginamos — Social Media Trauma.
+* O dinheiro se comporta muito bem sobre disciplina e rotina.
+* O dinheiro é seu. Os impostos são seus. O plano de aposentadoria é seu. Aprenda a lidar com todos eles.
+* Busque autoconhecimento. Saiba o que te faz feliz.
+* Praticar voluntariado e dar de volta ao mundo.
+* Esteja preparado para emergências.
+* Raramente finanças pessoais serão obrigatórias no currículo escolar.
+* Saiba os seus porquês.
+* Nunca perca dinheiro.
+* Coisas ruins acontecem — faça do limão uma limonada.
+* Se preocupe mais com você. Não deixe as pessoas te colocarem pra baixo.
+* Ser paciente. Ser responsável pelo próprio destino.
+* Se for reclamar, proponha pelo menos 2 soluções.
+
+### Citações para refletir:
+
+* "O que não é medido não é gerenciável." — W. Edwards Deming
+* "Plantar é opcional, mas a colheita é obrigatória."
+* "Sonhos sem planos serão apenas sonhos."
+* "Quem corre cansa ,que anda alcança!"
+
+Através destas reflexões e mudanças, comecei a viver uma vida mais plena, sem a constante preocupação com o dinheiro. Meu desejo é que este texto inspire outros a encontrarem paz e propósito em suas próprias jornadas financeiras.
